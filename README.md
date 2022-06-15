@@ -1,1 +1,0 @@
-# spaceshipqfq1o
